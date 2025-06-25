@@ -32,6 +32,7 @@ on his supposed "Self code bases"
 
 
 ### claiming he has super good products "yet dosent use them"
+![img](cantdebugpt2.png)
 ![img](cantdebug.png)
 
 ### not knowing basic windows api knowledge 
