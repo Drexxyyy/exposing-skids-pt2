@@ -49,6 +49,11 @@ on his supposed "Self code bases"
 ![img](13.png) well no shit sherlock ☠️
 
 
+### more proof of him claiming he knows things
+![img](14.png)
+
+
+
 
 
 ### 🚫 “Nobody Knows You” Energy  
