@@ -24,11 +24,15 @@ LMFAO
 
 ### 🧠 Doesn't Understand His Own Codebase  
 on his supposed "Self code bases"
-![img](8.png)
 ![img](6.png)
 ![img](7.png)
 ---
+### pasting from others like (sofmain senex etc..)
+![img](
 
+
+### not knowing basic windows api knowledge 
+![img](9.png)
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
