@@ -18,13 +18,13 @@ LMFAO
 ---
 
 ### 🗣️ Mem aim is ud but you send me NetConnection?
-![img](4.png)
+![img](5.png)
 
 ---
 
 ### 🧠 Doesn't Understand His Own Codebase  
 
-
+![img](8.png)
 ---
 
 
