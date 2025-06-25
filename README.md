@@ -42,9 +42,17 @@ on his supposed "Self code bases"
 ### not knowing basic windows api knowledge 
 ![img](9.png)
 
+
+### claiming he knows how to "crack" but dosent know simple cracking knowledge
+![img](12.png)
+
+
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
 ![img](zen_unknown.png)
+
+
+
 
 ---
 
