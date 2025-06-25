@@ -52,5 +52,5 @@ Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.
 Zen is what happens when ChatGPT, pastebin, and zero shame come together.  
 He’s not a dev — he’s just a drama episode waiting to happen. 
 
-###FYI 
+FYI 
 dont act all high and mighty or act like you know about devving or cyber sec we will clown on you your not elliot alderson your not prime dedsec your not payson  its ok to be a beginner but never a skid or a script kiddie
