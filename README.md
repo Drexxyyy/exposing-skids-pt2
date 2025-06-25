@@ -72,6 +72,14 @@ agreeing with me because i said i think i should wich is bulllshit i just mashed
 
 ![img](18.png)
 
+### dosent know the diffrence between km and um 
+
+![img](19.png)
+
+
+### still cant differenciate that not all drivers have the same ctl codes 🤡
+![img](20.png)
+
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
