@@ -4,6 +4,12 @@ Another day, another exposed skid. This time it’s **Zen**, the self-proclaimed
 
 ---
 
+### proof of him being delu lu 
+![img](16.png)
+saying updates he did not do and leaching off of drexxys stuff always asking for help and never does anything alon
+
+
+
 ### 🤡 cant init his driver 🔥
 LMFAO
 ![img](1.png)
