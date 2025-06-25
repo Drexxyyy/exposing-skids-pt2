@@ -68,6 +68,11 @@ agreeing with me because i said i think i should wich is bulllshit i just mashed
 
 
 
+### calaiming to have 8k vouches yet needs stuff from 2 small developers?
+
+![img](17.png)
+
+
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
 ![img](zen_unknown.png)
