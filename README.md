@@ -33,7 +33,11 @@ on his supposed "Self code bases"
 
 ### claiming he has super good products "yet dosent use them"
 ![img](cantdebugpt2.png)
+
+
+### oh yea dude my products are good yet seeking other people to debug his shit as if he cant just press (ctrl + shift + b)
 ![img](cantdebug.png)
+
 
 ### not knowing basic windows api knowledge 
 ![img](9.png)
