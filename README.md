@@ -61,7 +61,9 @@ on his supposed "Self code bases"
 
 
 ### i asked him a gibberish question and awnsered with some bullshit
+![img](17.png)
 
+agreeing with me because i said i think i should wich is bulllshit i just mashed keys to something realisitc
 
 
 
