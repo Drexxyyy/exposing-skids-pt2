@@ -28,8 +28,11 @@ on his supposed "Self code bases"
 ![img](7.png)
 ---
 ### pasting from others like (sofmain senex etc..)
-![img](
+![img](6.png)
 
+
+### claiming he has super good products "yet dosent use them"
+![img](cantdebug.png)
 
 ### not knowing basic windows api knowledge 
 ![img](9.png)
