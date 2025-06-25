@@ -70,7 +70,7 @@ agreeing with me because i said i think i should wich is bulllshit i just mashed
 
 ### calaiming to have 8k vouches yet needs stuff from 2 small developers?
 
-![img](17.png)
+![img](18.png)
 
 
 ### 🚫 “Nobody Knows You” Energy  
