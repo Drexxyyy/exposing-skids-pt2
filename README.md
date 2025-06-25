@@ -46,6 +46,10 @@ on his supposed "Self code bases"
 ### claiming he knows how to "crack" but dosent know simple cracking knowledge
 ![img](12.png)
 
+![img](13.png) well no shit sherlock ☠️
+
+
+
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
