@@ -53,6 +53,9 @@ on his supposed "Self code bases"
 ![img](14.png)
 
 
+### i asked him a gibberish question and awnsered with some bullshit
+
+
 
 
 
