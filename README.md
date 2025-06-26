@@ -90,6 +90,9 @@ for example branding sofmains v3 base branding it zen selling it posting it taki
 
 ![img](skid2.png)
 
+### sofmain pic
+
+![img](sofmain.png)
 
 
 
