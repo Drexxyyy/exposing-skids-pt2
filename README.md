@@ -103,7 +103,7 @@ you can clearly see here there is the same watermark and same bone structure and
 
 
 ### retard again responds to jibberish
-  ![img](jibbber.png)
+  ![img](jibber.png)
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
