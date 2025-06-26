@@ -95,6 +95,11 @@ for example branding sofmains v3 base branding it zen selling it posting it taki
 ![img](sofmain.png)
 
 
+### more picture proof 
+you can clearly see here there is the same watermark and same bone structure and menu and obviously he dosent know how to gui swap (graphical user interface)
+
+![img](other.png)
+
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
