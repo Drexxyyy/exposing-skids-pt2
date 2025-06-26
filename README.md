@@ -88,6 +88,8 @@ agreeing with me because i said i think i should wich is bulllshit i just mashed
 
 for example branding sofmains v3 base branding it zen selling it posting it taking credit for other peoples work using sofmains source for cheats not swapping drivers cause he dosent know how to swap it changing names but hes so stupid keeping the same watermark and menu design cause he dosent know how to swap or change it so instead he clearly used chatgpt to update it cause he has no idea what hes doing ill show sofmains source/menu and show "zens base"
 
+![img](skid2.png)
+
 
 
 
