@@ -117,11 +117,10 @@ Didn’t even change the watermark or GUI.
 ---
 
 
-
 ### 💀 Summary  
 
-Zen is what happens when **ChatGPT**, **Pastebin**, and **Zero Shame** come together.  
-He’s not a developer — he’s a full-blown script kiddie drama episode.
+Zen is what you get when ChatGPT, Pastebin, and unchecked overconfidence converge.
+He's not a developer — he's a case study in script-kiddie theatrics.
 
 ---
 
@@ -129,8 +128,9 @@ He’s not a developer — he’s a full-blown script kiddie drama episode.
 
 It's OK to be a beginner.  
 It's OK to learn and ask questions.  
-But it is **NEVER OK** to be a **skid**.
+But it is **NEVER OK** to be a **skid**, it is **NEVER OK** to be a **paster**.
 
-You're not Elliot Alderson. You're not DedSec. You're not Payson.  
-Don’t fake it — build it.
+You're not Elliot Alderson. You're not DedSec. You're not Payson.
+Pasting and getting yourself exposed is going to ruin your future opportunities.
+Don’t fake it — learn it.
 
