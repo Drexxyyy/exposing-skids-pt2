@@ -118,7 +118,7 @@ Didn’t even change the watermark or GUI.
 
 
 ### your "uknown" no one knows you gng 😭
-![img](uknown.png)
+![img](unknown.png)
 
 
 ### 💀 Summary  
