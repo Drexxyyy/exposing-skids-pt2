@@ -102,7 +102,7 @@ you can clearly see here there is the same watermark and same bone structure and
 
 
 
-### retard again responds to jibberish
+### skids again responds to jibberish
   ![img](jibber.png)
 
 ### 🚫 “Nobody Knows You” Energy  
