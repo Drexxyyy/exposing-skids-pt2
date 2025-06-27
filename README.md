@@ -4,130 +4,137 @@ Another day, another exposed skid. This time it’s **Zen**, the self-proclaimed
 
 ---
 
-### proof of him being delu lu 
+### 🧠 Proof of Delusion  
+Claims to push updates he didn’t make. Constantly leeching from Drexxy. Always asking for help — never solo.
+
 ![img](16.png)
 
-saying updates he did not do and leaching off of drexxys stuff always asking for help and never does anything alone
+---
 
-
-
-### 🤡 cant init his driver 🔥
-LMFAO
-![img](1.png)
-![img](2.png)
+### 🤡 Can’t Init His Driver  
+LMFAO  
+![img](1.png)  
+![img](2.png)  
 ![img](3.png)
 
 ---
 
-### 🗣️ Can't figure out how to debug shit?
+### 🪲 Can’t Debug His Own Sh*t  
 ![img](4.png)
 
 ---
 
-### 🗣️ Mem aim is ud but you send me NetConnection?
+### 🧃 Mem Aim is UD but Sends NetConnection?  
 ![img](11.png)
 
 ---
 
-### 🧠 Doesn't Understand His Own Codebase  
-on his supposed "Self code bases"
-![img](6.png)
+### ❌ Doesn’t Understand His Own "Self-Coded" Bases  
+![img](6.png)  
 ![img](7.png)
+
 ---
-### pasting from others like (sofmain senex etc..)
+
+### 📋 Pasting From Other Devs  
+Using bases like **Sofmain**, **Senex**, and more.  
 ![img](6.png)
 
+---
 
-### claiming he has super good products "yet dosent use them"
+### 💬 "My Products Are Good" (Yet Doesn’t Use Them)  
 ![img](cantdebugpt2.png)
 
+---
 
-### oh yea dude my products are good yet seeking other people to debug his shit as if he cant just press (ctrl + shift + b)
+### 🛠️ Needs Help Debugging Like Ctrl+Shift+B Doesn’t Exist  
 ![img](cantdebug.png)
-
-
-### not knowing basic windows api knowledge 
-![img](9.png)
-
-
-### claiming he knows how to "crack" but dosent know simple cracking knowledge
-![img](12.png)
-
-![img](13.png) well no shit sherlock ☠️
-
-
-### more proof of him claiming he knows things
-![img](14.png)
-
-
-### i asked him a gibberish question and awnsered with some bullshit
-![img](17.png)
-
-agreeing with me because i said i think i should wich is bulllshit i just mashed keys to something realisitc
-
-
-
-
-### calaiming to have 8k vouches yet needs stuff from 2 small developers?
-
-![img](18.png)
-
-### dosent know the diffrence between km and um 
-
-![img](19.png)
-
-
-### still cant differenciate that not all drivers have the same ctl codes 🤡
-![img](20.png)
-
-
-
-
-
-### claiming other peoples sources for cheats are his 
-
-for example branding sofmains v3 base branding it zen selling it posting it taking credit for other peoples work using sofmains source for cheats not swapping drivers cause he dosent know how to swap it changing names but hes so stupid keeping the same watermark and menu design cause he dosent know how to swap or change it so instead he clearly used chatgpt to update it cause he has no idea what hes doing ill show sofmains source/menu and show "zens base"
-
-![img](skid2.png)
-
-### sofmain pic
-
-![img](sofmain.png)
-
-
-### more picture proof 
-you can clearly see here there is the same watermark and same bone structure and menu and obviously he dosent know how to gui swap (graphical user interface)
-
-![img](other.png)
-
-
-
-
-### if he claims that he never said they were his 
-
-![img](picproof.png)
-
-
-
-### skids again responds to jibberish
-  ![img](jibber.png)
-
-
-
-
-
-### 🚫 “Nobody Knows You” Energy  
-Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
-![img](zen_unknown.png)
-
-
-
 
 ---
 
-### 💀 Summary:  
-Zen is what happens when ChatGPT, pastebin, and zero shame come together.  
-He’s not a dev — he’s just a drama episode waiting to happen. 
+### 🧑‍💻 Doesn’t Know Basic Windows API  
+![img](9.png)
 
-FYI 
-dont act all high and mighty or act like you know about devving or cyber sec we will clown on you your not elliot alderson your not prime dedsec your not payson  its ok to be a beginner but never a skid or a script kiddie
+---
+
+### 🧢 Claims Cracking Knowledge But… Nah  
+![img](12.png)  
+![img](13.png) — well no sh*t Sherlock ☠️
+
+---
+
+### 📣 Claims He Knows Everything  
+![img](14.png)
+
+---
+
+### 🤖 Responds to Gibberish Like It's Real  
+Asked him nonsense — he agreed like it made sense.  
+![img](17.png)
+
+> literally just mashed keys, he still agreed.
+
+---
+
+### 🧾 "8K Vouches" But Needs Help from 2 Small Devs?  
+![img](18.png)
+
+---
+
+### 🔌 Doesn’t Know KM vs UM  
+![img](19.png)
+
+---
+
+### 🎯 Thinks All Drivers Use Same CTL Codes  
+![img](20.png)
+
+---
+
+### 🧬 Claims Other Peoples’ Cheat Sources Are His  
+
+Branded **Sofmain V3** as his own and resold it.  
+Didn’t even change the watermark or GUI.
+
+- **Zen's Rebrand**  
+  ![img](skid2.png)
+
+- **Sofmain Original**  
+  ![img](sofmain.png)
+
+- **Identical Structure / Watermark**  
+  ![img](other.png)
+
+---
+
+### 🧾 "I Never Claimed It Was Mine"  
+![img](picproof.png)
+
+---
+
+### 🤯 Still Responding to Gibberish Like It's Code  
+![img](jibber.png)
+
+---
+
+### 🚫 “Nobody Knows You” Energy  
+Trying to act mysterious like it's 2013 LulzSec — nobody asked.  
+![img](zen_unknown.png)
+
+---
+
+### 💀 Summary  
+
+Zen is what happens when **ChatGPT**, **Pastebin**, and **Zero Shame** come together.  
+He’s not a developer — he’s a full-blown script kiddie drama episode.
+
+---
+
+### ⚠️ Final Note  
+
+It's OK to be a beginner.  
+It's OK to learn and ask questions.  
+But it is **NEVER OK** to be a **skid**.
+
+You're not Elliot Alderson. You're not DedSec. You're not Payson.  
+Don’t fake it — build it.
+
