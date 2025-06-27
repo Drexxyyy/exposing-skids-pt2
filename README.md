@@ -116,11 +116,7 @@ Didn’t even change the watermark or GUI.
 
 ---
 
-### 🚫 “Nobody Knows You” Energy  
-Trying to act mysterious like it's 2013 LulzSec — nobody asked.  
-![img](zen_unknown.png)
 
----
 
 ### 💀 Summary  
 
