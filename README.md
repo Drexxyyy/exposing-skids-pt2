@@ -102,8 +102,19 @@ you can clearly see here there is the same watermark and same bone structure and
 
 
 
+
+### if he claims that he never said they were his 
+
+![img](picproof.png)
+
+
+
 ### skids again responds to jibberish
   ![img](jibber.png)
+
+
+
+
 
 ### 🚫 “Nobody Knows You” Energy  
 Tries to act mysterious like it’s 2013 LulzSec, but no one even asked.  
