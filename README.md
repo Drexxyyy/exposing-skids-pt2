@@ -117,6 +117,10 @@ Didn’t even change the watermark or GUI.
 ---
 
 
+### your "uknown" no one knows you gng 😭
+![img](uknown.png)
+
+
 ### 💀 Summary  
 
 Zen is what you get when ChatGPT, Pastebin, and unchecked overconfidence converge.
